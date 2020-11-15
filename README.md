@@ -1,6 +1,6 @@
 # ~ My Profile ~
 
 閲覧いただきありがとうございます！
-中村です！
+Yoshiteru Nakamuraと申します！
 
 now editing....
